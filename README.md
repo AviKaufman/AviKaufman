@@ -5,3 +5,7 @@ My interests lie at the intersection of deep theory and cutting-edge innovation,
 Outside of academics and research, I’ve explored entrepreneurial ventures, where I bring creative ideas to life through tech. I believe in solving tomorrow’s problems today, and I’m always looking for new challenges that stretch my skills and expand my understanding.
 
 If you’re passionate about building the future, we’ll get along just fine. 😃
+
+Contact:
+
+email: avigkaufman@gmail.com
